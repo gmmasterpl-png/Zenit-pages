@@ -1,2 +1,0 @@
-# Zenit-pages
-Strona drużyny
